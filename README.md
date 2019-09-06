@@ -1,1 +1,1 @@
-## Thursday exercises
+## Wednesday & Thursday exercises
